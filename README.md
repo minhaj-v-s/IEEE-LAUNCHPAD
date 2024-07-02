@@ -1,5 +1,3 @@
-# IEEE LAUNCHPAD Job Fair
-
 
 # Minhaj V Shams
 
